@@ -1,2 +1,4 @@
 # hello-world
 the first repository that I created.
+HEY GUYS ,I'M JUST REGISTERED THE GITHUB AND MAY WE HAVE FUN TOGETHER ON CODE WORLD .
+SEE YOU LATER:)
